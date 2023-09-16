@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @KatanaBreis
 - 👀 I’m interested in collaborating on software development projects
-- 🌱 I’m currently learning about tech trends 
 - 📫 How to reach me ... +52 44 42 20 51 74
 
 
